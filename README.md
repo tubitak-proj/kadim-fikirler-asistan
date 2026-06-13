@@ -1,1 +1,0 @@
-# kadim-fikirler-asistan
